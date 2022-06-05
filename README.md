@@ -1,1 +1,0 @@
-Simran Panthi & Nikita Kharal
